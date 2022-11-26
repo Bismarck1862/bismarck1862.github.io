@@ -1,1 +1,0 @@
-# bismarck1862.github.io
